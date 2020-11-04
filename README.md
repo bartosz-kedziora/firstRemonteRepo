@@ -1,1 +1,1 @@
-# firstRemonteRepo
+# Paragon z warzywniaka
